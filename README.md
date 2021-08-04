@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shrigma
+- 👀 I’m interested in free software
+- 📫 How to reach me, don't
